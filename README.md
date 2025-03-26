@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @NathanMwTidur
-- 👀 I’m interested in HSR/GI, Writing N Artz, making OCs. 
-- 🌱 I’m currently learning JP n German
-- 😄 Pronouns: He/They
-- ⚡ Fun fact: I like men as a man myself
+yes, im indonesian. yes im probably mentally ill. yes im interested in limbus and zenless. yes i play mlbb and hok. yes im alpha
 
 
 

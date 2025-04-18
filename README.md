@@ -1,4 +1,4 @@
-yes, im indonesian. yes im probably mentally ill. yes im interested in limbus and zenless. yes i play mlbb and hok. yes im alpha
+yes, im indonesian. yes im probably mentally ill. (confirmed stage 4 depression hi.) yes im interested in projectmoon (only played limbus so bare with me) and zenless. yes i play mlbb and hok. yes im alpha
 
 
 
